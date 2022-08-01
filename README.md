@@ -9,6 +9,10 @@
 
 ## [Daemon 3 2020-07-03](https://www.mediafire.com/file/si850e59sm4zrk6/Daemon_3_2020-07-03.osk/file)
 
+## [Daemon 3 ft. Cookiezi](https://www.mediafire.com/file/x6qx399w4g04zfb/Daemon_3_ft._Cookiezi.osk/file)
+
+## [Daemon 3 ft. Mathi](https://www.mediafire.com/file/x6qx399w4g04zfb/Daemon_3_ft._Cookiezi.osk/file)
+
 ## [Daemon 3 ft. Rohulk](https://www.mediafire.com/file/y8z0lljb1ae2vlv/Daemon_3_ft._Rohulk.osk/file)
 
 ## [Daemon 4 2020-10-09](https://www.mediafire.com/file/qtfwjzl9hjsaprx/Daemon_4_2020-10-09.osk/file)
