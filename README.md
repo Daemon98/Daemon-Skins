@@ -6,10 +6,7 @@
 CURRENT SKIN:
 ## [DaemonReading2](https://www.mediafire.com/file/32guuhu2m96zn1w/DaemonReading_2.osk/file)
 
-
-
-
-------------------------------------------------------------------------------------------------------
+OLD SKINS:
 ## [fierymod v8 fancy edit](https://mega.nz/file/JDphhTLS#ipfwBd5WwmF-7N21iPPAkws2HRMx4kRyrvzYUhzjjS8)
 ![](https://camo.githubusercontent.com/8027c5120d61a9f4fe6c13f2eb84570b548292e91b51da1b7e71f06ef7a34f44/68747470733a2f2f6f73752e7070792e73682f73732f31383030343930312f31306264)
 
